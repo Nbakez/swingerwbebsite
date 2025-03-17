@@ -1,4 +1,4 @@
-# swingerwbebsite
+# swingerwebsite
 
 
 - [Free Swinger Website](https://strictlyswingers.com)  
